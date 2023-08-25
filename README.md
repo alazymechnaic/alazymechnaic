@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alazymechnaic
+- 👋 Hi, I’m @alazymechine
   - A postgraduate stduent in Hust
   - majoring in Cyber Security
 - 👀 I’m interested in ...
